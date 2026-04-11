@@ -1,1 +1,1 @@
-# CV_projects_MaksymKaminksyi_77313
+# CV_projects_MaksymKaminkyi_77313
